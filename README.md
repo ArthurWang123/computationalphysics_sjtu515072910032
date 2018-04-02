@@ -24,6 +24,10 @@ For_computational_physics
 
 6. [第四次作业 作业部落在线发布链接](https://www.zybuluo.com/XIAOWEI-WANG123/note/1091495)
 
+   [第四次作业.md](https://github.com/ArthurWang123/computationalphysics_sjtu515072910032/blob/master/%E7%AC%AC%E5%9B%9B%E6%AC%A1%E4%BD%9C%E4%B8%9A/%E7%AC%AC%E5%9B%9B%E6%AC%A1%E4%BD%9C%E4%B8%9A.md)
+
+   [第四次作业.pdf](https://github.com/ArthurWang123/computationalphysics_sjtu515072910032/blob/master/%E7%AC%AC%E5%9B%9B%E6%AC%A1%E4%BD%9C%E4%B8%9A/%E7%AC%AC%E5%9B%9B%E6%AC%A1%E4%BD%9C%E4%B8%9A.md.pdf)
+
    ​
 
 
