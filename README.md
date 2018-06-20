@@ -56,21 +56,25 @@ For_computational_physics
 
 9. [第九次作业 作业部落在线发布链接](https://www.zybuluo.com/XIAOWEI-WANG123/note/1144634)
 
-      
+   ​    
 
 10. [第十次作业 作业部落在线发布链接](https://www.zybuluo.com/XIAOWEI-WANG123/note/1154334)
 
-     
+      
 
 11. [第十一次作业 作业部落在线发布链接](https://www.zybuluo.com/XIAOWEI-WANG123/note/1159738)
 
-      
+    ​    
 
 12. [第十二次作业 作业部落在线发布链接](https://www.zybuluo.com/XIAOWEI-WANG123/note/1169176)
 
-    
+      
 
 13. [第十三次作业 作业部落在线发布链接](https://www.zybuluo.com/XIAOWEI-WANG123/note/1176862)
+
+    
+
+14. [第十四次作业 作业部落在线发布链接](https://www.zybuluo.com/XIAOWEI-WANG123/note/1187165)
 
 
 
